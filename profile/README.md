@@ -12,7 +12,7 @@ Start your gaming journey today by downloading our exciting games. Choose your p
 
 ### 👉 [Download Color Trading App](https://github.com/Colour-Trading-App)  
 
-### 👉 [Download Color Trading App](https://github.com/Colour-Prediction-APK)  
+### 👉 [Download Colour Prediction App](https://github.com/Colour-Prediction-APK)  
 
 ---
 
