@@ -8,7 +8,10 @@ Welcome to **Y1com Games**, your ultimate destination for the latest and most ex
 
 Start your gaming journey today by downloading our exciting games. Choose your preferred category and click the links below:
 
-### [Download Y1com Game](https://t.co/mZcbGWXk6R)  
+### [Download Y1com Game](https://t.co/mZcbGWXk6R) 
+
+### 👉 [Download Color Trading App](https://github.com/Colour-Trading-App)  
+
 ---
 
 ## Why Choose Y1com Games?
