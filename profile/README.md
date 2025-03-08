@@ -10,10 +10,6 @@ Start your gaming journey today by downloading our exciting games. Choose your p
 
 ### 👉 [Download Y1com Game](https://t.co/mZcbGWXk6R) 
 
-### 👉 [Download Color Trading App](https://github.com/Colour-Trading-App)  
-
-### 👉 [Download Colour Predict App](https://github.com/Colour-Prediction-APK)  
-
 ---
 
 ## Why Choose Y1com Games?
